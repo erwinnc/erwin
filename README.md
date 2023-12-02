@@ -1,1 +1,0 @@
-# syarifa.github.io
